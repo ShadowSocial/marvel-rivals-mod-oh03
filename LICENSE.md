@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals mod menu aim assist with smart Aim Assist for marvel rivals mod menu - ultimate cooldown reset and enemy movement predictor. Featuring ultimate
 
 
 
